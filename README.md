@@ -27,7 +27,7 @@ I am eager to collaborate on projects that include:
 
 * ✉️ [karakoyunoguzhan@gmail.com](mailto:karakoyunoguzhan@gmail.com)
 * 📞 +43 677 641 33010
-* 💬 [LinkedIn Profile](https://www.linkedin.com/in/oguzhankarakoyun/)
+* 💬 [LinkedIn Profile](https://www.linkedin.com/in/oguzhan-karakoyun-459614275/)
 * 📲 Connect with me for discussions on technology, collaborations, or mentorship opportunities!
 
 ## 😄 Pronouns
